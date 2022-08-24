@@ -12,4 +12,4 @@
 
 
 <p align="center">
-	Bedava / Kırılmış Pooliver yoktur, sadece Yeti#4667'dan satın alabilirsiniz.
+	Bedava / Kırılmış Pooliver Vardır almak için discord#0000
